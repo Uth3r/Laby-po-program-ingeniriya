@@ -1,1 +1,0 @@
-# Laby-po-program-ingeniriya
